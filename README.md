@@ -1,2 +1,2 @@
-# -互联网+
-互联网+比赛最终版材料，希望有用
+# Internet + final version of the competition material
+Previous entries: Internet + final version of the competition material
